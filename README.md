@@ -1,0 +1,6 @@
+- **oi, meu nome e vinicius lemes fracaro**
+- atualmente estudo no colegio estdual do campo do rio do couro&#128216;
+- sou estudante de pensamento computacional
+- gosto muito da diciplina , mas as vezes a internet nao ajuda 
+- ![](https://animalbusiness.com.br/wp-content/uploads/2021/06/IMG-20210617-WA0021_resized.jpg)
+-  [](
