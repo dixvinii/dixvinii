@@ -3,4 +3,4 @@
 - Sou estudante de pensamento computacional
 - Gosto muito da diciplina , mas as vezes a internet nao ajuda 
 - [github](https://github.com/dixvinii/fazendafuracao.git)
-- ![](https://animalbusiness.com.br/wp-content/uploads/2021/06/IMG-20210617-WA0021_resized.j 
+- ![](https://www.milkpoint.com.br/img/artigo/84176/?w=1200&vs=25012021153824)
